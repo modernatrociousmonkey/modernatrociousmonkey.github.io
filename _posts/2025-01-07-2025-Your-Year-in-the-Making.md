@@ -7,7 +7,7 @@ author:
 meta: "Springfield"
 ---
 
-Forget crystal balls and horoscopes – let's talk real about 2024 being *"your year."* Sure, the stars might have something to say, but the truth is, YOU hold the paintbrush for this blank canvas. 
+Forget crystal balls and horoscopes – let's talk real about 2025 being *"your year."* Sure, the stars might have something to say, but the truth is, YOU hold the paintbrush for this blank canvas. 
 
 So, let's ditch the pressure and paint a masterpiece with some everyday stoic vibes:
 
